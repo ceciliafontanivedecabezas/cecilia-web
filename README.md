@@ -23,7 +23,7 @@ Este sitio es una plataforma viva para compartir mi trabajo, colaborar con otras
 ## 📬 Contacto
 
 Si quieres colaborar, invitarme a proyectos o simplemente conversar, puedes escribirme a:  
-**📧 cecilia.fontanive@email.com**  
+**📧 ceciliafontanivedecabezas@gmail.com**  
 O seguirme en redes sociales: [Instagram](https://instagram.com/ceciliafontanive) · [X/Twitter](https://twitter.com/ceciliafontanive)
 
 ---
